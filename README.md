@@ -9,6 +9,7 @@ I'm a college student at Universitas Padjajaran. I am mainly in accounting. I li
  
 ### 📫 How to reach me ...
 nakanoyoichi83@gmail.com
+**Note** : I am not really active in any platform
 
 <!---
 nakanoyo/nakanoyo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
