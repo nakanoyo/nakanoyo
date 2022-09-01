@@ -8,7 +8,7 @@ I'm a college student at Universitas Padjajaran. I am mainly in accounting. I li
 - Motto : Everything is for fun
  
 ### 📫 How to reach me ...
-nakanoyoichi83@gmail.com
+Email : nakanoyoichi83@gmail.com
 **Note** : I am not really active in any platform
 
 <!---
